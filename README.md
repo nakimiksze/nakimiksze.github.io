@@ -1,1 +1,0 @@
-# nakimiksze.github.io
